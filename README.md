@@ -1,0 +1,1 @@
+Repositório criado para armazenamentos de anotações e resumos de estudos realizados
